@@ -3,7 +3,7 @@
 👩‍🎓 B.Tech in Bioengineering | VIT Bhopal  
 📅 Last updated: July 2025  
 
-### 📄 [Click to view my resume](./Krishna%20Nitin%20Barge%20Resume%20final-2%20%281%29.pdf)
+https://drive.google.com/file/d/1G_0v6evEdlEtpX2SPkSrf-l7ovOz0Ix5/view?usp=sharing
 
 ---
 
